@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hola
+Hola soy Jenny, Economista y Analista de datos con muchas ganas de aprender y participar en muchos proyectos.
 
 
 ## 🌐 Socials:
